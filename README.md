@@ -1,4 +1,4 @@
-# AP_US_History_Notes
+# AP US History Notes
 ### Ben Plate
 ### 2018-2019
 
